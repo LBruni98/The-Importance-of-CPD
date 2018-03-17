@@ -1,3 +1,6 @@
+### Draft From my LinkedIn Article
+The article can be found [here](https://www.linkedin.com/pulse/cpd-its-importance-contribution-towards-own-learning-luke-bruni/?published=t)
+
 Right, let's set the scene.
 
 You've finished your degree, completed the experience in order to graduate and now on your way to your dream job. Congratulations, now it is time to have that well deserved break, right? Well, you have earned it, but I wouldn't take too much of a breather, otherwise your skills will be lacking immensely compared to others in the same field of work. Now, you're a bit worried but don't be, because that's what Continued Professional Development is there for; helping you out to be competent within your profession.
