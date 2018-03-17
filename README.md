@@ -12,14 +12,15 @@ CPD is a more broader process and not just some tick-box, criteria fulfilling fo
 
 There are massive benefits towards CPD, some factors that hopefully make you consider resorting to it to help you stay ahead:
 
-It provides an overview of your professional development to date
-It reminds you of your achievements and how far you've progressed
-CPD directs your career and helps you keep your eye on your goals
-It uncovers gaps in your skills and capabilities
-It opens up further development needs
-CPD provides examples and scenarios for a CV or interview
-It demonstrates your professional standing to clients and employers
-and it helps you with your career development or a possible career change.
+* It provides an overview of your professional development to date
+* It reminds you of your achievements and how far you've progressed
+* CPD directs your career and helps you keep your eye on your goals
+* It uncovers gaps in your skills and capabilities
+* It opens up further development needs
+* CPD provides examples and scenarios for a CV or interview
+* It demonstrates your professional standing to clients and employers
+* and it helps you with your career development or a possible career change.
+
 Not only would you, the individual, benefit and have to use CPD, organizations use it to help with recognition and increased brand perception, providing a healthy learning culture for your organisation and in turn, leading to a more fulfilled workforce and retaining valuable staff.
 
 In relation towards my own experience, I am currently undergoing learning in a new college course, the HND Video Game Design and Production. Unlike normal courses in HND, this one basically focuses on CPD within learning, helping students to develop their professionalism with developing portfolios showcasing their work and focusing on projects, tasks and occasionally, actual clients rather than deadlines and assignments.
